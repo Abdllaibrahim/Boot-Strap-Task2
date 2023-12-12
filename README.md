@@ -1,1 +1,1 @@
-![capture_231212_152728](https://github.com/Abdllaibrahim/Boot-Strap-Task2/assets/54725888/6991c88e-2a38-4cb6-8c62-1a3dcc473854)
+![127 0 0 1_5500_index html (1)](https://github.com/Abdllaibrahim/Boot-Strap-Task2/assets/54725888/a0f38520-c9be-494a-87f9-8649fbd33d96)
